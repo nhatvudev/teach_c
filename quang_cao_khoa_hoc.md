@@ -1,3 +1,25 @@
+vuzbao60@gmail.com
+phat792006@gmail.com
+banhnhurong001@gmail.com
+dinhtriet2010@gmail.com
+vietdat2710200@gmail.com
+
+
+
+dkhang709@gmail.com
+phamtuandeptrai04@gmail.com
+laitungtung22022006@gmail.com
+
+
+OK. Em xem lại hộp mail kể cả trong spam để nhận link vào classroom nhé.
+- Classroom là nơi lưu trữ thông báo, bài viết, tài liệu
+
+À, Nhớ tham gia group "Học Code Đổi Đời" https://www.facebook.com/groups/1066096134864336
+Sau đấy tham gia chatgroup https://m.me/ch/AbYBn3PhRw_JsgE1/
+
+
+---------------------------------------
+
 Đầu tháng 9 anh sẽ mở lớp C/C++ cơ bản online miễn phí. Em muốn học thì gửi email vào nhatvu.dev@gmail.com nhé. Nội dung ghi "đăng ký học lớp C/C++ cơ bản tháng 9".
 
 Về trình độ thì anh là kỹ sư trên 10 năm kinh nghiệm, có bằng thạc sĩ KHTN và chứng chỉ nghiệp vụ sư phạm nên em yên tâm.
